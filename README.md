@@ -1,6 +1,6 @@
 Hey there 👋
 
-All things data. Or, mostly!
+All things data. (Or, mostly!)
 Learning something new every day.
 
 I also believe in paying it forward and helping people who code. If you have programming knowledge, then help someone else. We all know what it's like to be at the beginning. 
