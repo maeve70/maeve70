@@ -8,7 +8,7 @@ That said, you can find me over here:
 <a href="https://projectnu.org" rel="nofollow">Project Nu Forums</a>
 
 And over here:
-<a href="https://medium.com/me/stories/public" rel="nofollow">Medium</a>
+<a href="https://socgrrrl.medium.com/" rel="nofollow">Medium</a>
 
 
 
