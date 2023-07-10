@@ -7,6 +7,9 @@ I also believe in paying it forward and helping people who code. If you have pro
 That said, you can find me over here:
 <a href="https://projectnu.org" rel="nofollow">Project Nu Forums</a>
 
+And over here:
+<a href="https://medium.com/me/stories/public" rel="nofollow">Medium</a>
+
 
 
 
